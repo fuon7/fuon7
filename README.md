@@ -11,7 +11,3 @@ You can contact me in the following ways and I usually check these avenues at le
 - E-Mail: [amanofuon@gmail.com](mailto:amanofuon@gmail.com)
 - Telegram: [@amanofuon](https://t.me/amanofuon)
 - X: [@AmanoFuon](https://x.com/AmanoFuon)
-
-### Credit
-
-- Avatar: [twitter@neko_mataneko](https://twitter.com/neko_mataneko)
